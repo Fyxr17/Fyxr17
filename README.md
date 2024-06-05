@@ -11,3 +11,6 @@ Hello, I'm @Fyxr17.
 *Skills* 🎯
 - Python 🐍
 - JavaScritp 📜
+
+*Contact* 📞
+You can contact me through my email ogandogabriel31@gmail.com so we can get to know you more. 😉
