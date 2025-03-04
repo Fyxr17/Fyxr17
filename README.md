@@ -13,4 +13,4 @@ Hi, I'm Marcos, known here on GitHub as @Fyxr17.
 - Python 🐍
 
 *Contact* 📞
-You can contact me through my email ogandogabriel31@gmail.com so we can get to know you more. 😉
+You can contact me through my linkedin https://www.linkedin.com/in/gabriel-ogando-a086682b7/ so we can get to know you more. 😉
